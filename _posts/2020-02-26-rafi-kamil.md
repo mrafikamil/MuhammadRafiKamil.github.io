@@ -1,0 +1,1 @@
+Halo semuanya, perkenalkan nama saya Muhammad Rafi Kamil, biasa dipanggil pika. Saya lahir di Bandung dan ditempatkan oleh Tuhan di keluarga yang cukup, cukup dalam segala hal yang mungkin menjadikan saya menjadi orang yang beruntung. Disini saya akan sedikit cerita mengenai pengalaman singkat saya yang sudah berkuliah di Polban, lebih tepatnya di JTK selama 1 semester.
